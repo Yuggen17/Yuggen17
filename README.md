@@ -1,4 +1,4 @@
-**👋 Hi, I’m @Yuggen17**
+**👋 Hi, I’m Yuggen**
 -
 **A Software Engineering Student of Universiti Kebangsaan Malaysia (UKM)**
 - I am actively looking for internship to widen my knowledge and experience on IT field
